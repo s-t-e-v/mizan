@@ -1,1 +1,1 @@
-# Mizan
+# ⚖️ Mizan
